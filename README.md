@@ -1,0 +1,1 @@
+# foxs2026.github.io
